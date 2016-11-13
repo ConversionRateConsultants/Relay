@@ -1,10 +1,10 @@
 ## Veins  
 
-Try to imagine that, today by 8am, you logged on to a platform and signed up on one of these referral networks, say, Melisfon.  
+Try to imagine that, by 8am today, you logged on to a platform and signed up on one of these referral networks, say, Melisfon.  
 
 And after work, you log in again by 4pm to check and, to your greatest amazement, you see that 150 persons more have signed up after you on the same network – all in less than 10 hours.  
 
-Then 15minutes later, you receive a notification from the platform’s Admin that you’re next in line to register with Melisfon in 3 days time, and requesting that you send a message to accept or decline the registration.  
+Then 15 minutes later, you receive a notification from the platform’s Admin that you’re next in line to register with Melisfon in 3 days time, and requesting that you send a message to accept or decline the registration.  
 
 Tell me, what further proof will you need to be convinced to register on Melisfon asap?  
 Absolutely none, and this is why:  
@@ -23,10 +23,8 @@ Imagine how enjoyable the rest of your journey through levels 4, 5 and 6 will be
 
 But...  
 
-What if I told you that’s not even the biggest benefit there is to using that platform?   
+What if I told you that’s not even the biggest benefit there is to using that platform?     
 
-One of the best things about being part of a group like this one is that group members get to be one of the first to benefit from using tools & platforms like this you’re about to discover, before people outside even get to hear about it.  
-
-So, since we’re not charging for it, you can find out all about why the Veins platform is the only referral tool you’ll ever need in network marketing.  
+You can find out all about why the Veins platform is the only referral tool you’ll ever need in network marketing.  
 
 Just to clear any doubts; you’re not paying for using Veins. It's a 100% Free platform.
